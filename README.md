@@ -1,0 +1,2 @@
+# premium-regen-rx-001-regenerative-receiver-feedback
+Tired of feeling lost in your regenerative therapy journey, unsure if your treatments are actually working or if you're on the right track? The Regenerative Receiver Feedback Control Planner is your personal dashboard to transform overwhelming clinic notes and scattered symptoms into a clear, actionable feedback loop that puts you back in control.
